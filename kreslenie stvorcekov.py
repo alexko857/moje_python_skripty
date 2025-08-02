@@ -1,1 +1,0 @@
-kreslenie stvorcekov
